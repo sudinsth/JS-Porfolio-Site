@@ -1,1 +1,1 @@
-This website is the first portfolio. Just Practicing!! xP
+This website is the first portfolio.
